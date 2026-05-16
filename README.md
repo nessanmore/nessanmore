@@ -16,23 +16,23 @@
 
 <p align="center">
   <font size="2">
-    I am often on 'offline' mode, so please don't assume I've blocked you or are avoiding you. Most of the time I will be open to conversation with friends, but there may be times I do not approach first. I am less likely to approach if a friend of mines is sitting with another pony I am unfamilar with, and will refuse to engage. I am <u>very</u> protective and territorial over people I consider friends.～☆
+    I am often on 'offline' mode, so please don't assume I've blocked you or am avoiding you. Most of the time, I will be open to conversation with friends, but there may be times I do not approach first. I am less likely to approach if a friend of mine is sitting with another pony I am unfamiliar with, and will refuse to engage. I am <u>very</u> protective and territorial over people I consider friends.～☆
   </font>
 </p>
-<p align="center"><p align="center" style="font-size: 11;"> I am a confrontational person and get angry very easily. Though I will try my best to be respectful and approachable, if there is self-proclaimed 'beef' beetween us, you must tell me it directly, or stay away from me, because I don't entertain conversations with people who don't like me. I block freely. I can not be around passive people; you must have some strong passion, something you stand for.～☆ </p>
+<p align="center"><p align="center" style="font-size: 11;"> I am a confrontational person and get angry very easily. Though I will try my best to be respectful and approachable, if there is self-proclaimed 'beef' between us, you must tell me about it directly, or stay away from me, because I don't entertain conversations with people who don't like me. I block freely. I can not be around passive people; you must have some strong passion, something you stand for.～☆ </p>
 
-<p align="center"><p align="center" style="font-size: 11;"> If you approach me because of drama/beef and you are not the person I have the direct problem with, I'm blocking you. I don't deal with 'messengers' or middlemen, just don't speak to me at all if isn't to my face.～☆ </p>
+<p align="center"><p align="center" style="font-size: 11;"> If you approach me because of drama/beef and you are not the person I have the direct problem with, I'm blocking you. I don't deal with 'messengers' or middlemen; just don't speak to me at all if it isn't to my face.～☆ </p>
 
 
 <h1 align="center"></a></h2>
 <blockquote><h2><b>DNI</b></h2></blockquote>
 <p align="center"><p align="center" style="font-size: 11;"> I don't like people who act child-like or are very loud in a childish demeanor, even if it is a personality trait. It makes me very uncomfortable. Acting dumb or regressing yourself willingly as an act falls under this. I understand age regression as a psychological struggle, but I do not tolerate age play or people who do it on purpose for attention.～☆</p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I cannot be around overly sensitive people, as I am a person who enjoys joking around and can being rough with friends. I also don't like being around overly positive/negative people. I aim for a balance as, I, myself suffer from enough mood swings for the both of us.～☆</p>
+<p align="center"><p align="center" style="font-size: 11;"> I cannot be around overly sensitive people, as I am a person who enjoys joking around and can be rough with friends. I also don't like being around overly positive/negative people. I aim for a balance as, I, myself, suffer from enough mood swings for the both of us.～☆</p>
 
 <p align="center"><p align="center" style="font-size: 11;"> I do not interact with Republicans or anyone who supports red thinking in relation to politics. Anyone who is Pro-Life must stay away from me. Any male apologist's stay away from me, as I support misandristic thinking and have little to no sympathy for men.  ～☆</p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I am not too crazy over ships, but there are some I like and some I can't stand. I like nortnaib, nortcest, and adamil. I can't stand any seperation of adamil (nortemil, lucamil). I don't like mattflorian. I don't like any Jack ship with female characters. I don't like any wax ship with female characters. Nortmike (human ver) is a hit or miss for me. I don't like VAL (victor x andrew x luca), but I don't hate it.  ～☆</p>
+<p align="center"><p align="center" style="font-size: 11;"> I am not too crazy over ships, but there are some I like and some I can't stand. I like nortnaib, nortcest, and adamil. I can't stand any separation of adamil (nortemil, lucamil). I don't like Mattflorian. I don't like any Jack ship with female characters. I don't like any wax ship with female characters. Nortmike (human ver) is a hit or miss for me. I don't like VAL (victor x andrew x luca), but I don't hate it.  ～☆</p>
 
 
 
