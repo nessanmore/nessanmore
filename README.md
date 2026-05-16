@@ -32,7 +32,7 @@
 
 <p align="center"><p align="center" style="font-size: 11;"> I do not interact with Republicans or anyone who supports red thinking in relation to politics. Anyone who is Pro-Life must stay away from me. Any male apologist's stay away from me, as I support misandristic thinking and have little to no sympathy for men.  ～☆</p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I am not too crazy over ships, but there some I like and some I can't stand. I like nortnaib, nortcest, and adamil. I can't stand any seperation of adamil (nortemil, lucamil). I don't like mattflorian. I don't like any Jack ship with female characters. I don't like any wax ship with female characters. Nortmike (human ver) is a hit or miss for me. I don't like VAL (victor x andrew x luca), but I don't hate it.  ～☆</p>
+<p align="center"><p align="center" style="font-size: 11;"> I am not too crazy over ships, but there are some I like and some I can't stand. I like nortnaib, nortcest, and adamil. I can't stand any seperation of adamil (nortemil, lucamil). I don't like mattflorian. I don't like any Jack ship with female characters. I don't like any wax ship with female characters. Nortmike (human ver) is a hit or miss for me. I don't like VAL (victor x andrew x luca), but I don't hate it.  ～☆</p>
 
 
 
