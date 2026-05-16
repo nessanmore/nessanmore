@@ -12,7 +12,7 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
-<p align="center"><p align="center" style="font-size: 11;"> I am autistic and have bpd, so please interact cautiously. I am always open to cuddles/hugs and interactions, but please take note that I do not like crowded areas. I prefer one on one communication (whispering) and I don't respond well when there are too many friends of friends (oomfs) in one area. I do 'irish goodbyes' often when cases like that happen.～☆ </p>
+<p align="center"><p align="center" style="font-size: 11;"> I am autistic and have bpd, so please interact cautiously. I am always open to cuddles/hugs and interactions, but please take note that I do not like crowded areas. I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends of friends (oomfs) in one area. I do 'Irish goodbyes' often when cases like that happen.～☆ </p>
 
 <p align="center">
   <font size="2">
@@ -28,7 +28,7 @@
 <blockquote><h2><b>DNI</b></h2></blockquote>
 <p align="center"><p align="center" style="font-size: 11;"> I don't like people who act child-like or are very loud in a childish demeanor, even if it is a personality trait. It makes me very uncomfortable. Acting dumb or regressing yourself willingly as an act falls under this. I understand age regression as a psychological struggle, but I do not tolerate age play or people who do it on purpose for attention.～☆</p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I cannot be around overly sensitive people, as I am a person who enjoys joking around and can be rough with friends. I also don't like being around overly positive/negative people. I aim for a balance as, I, myself, suffer from enough mood swings for the both of us.～☆</p>
+<p align="center"><p align="center" style="font-size: 11;"> I cannot be around overly sensitive people, as I am a person who enjoys joking around and can be rough with friends. I also don't like being around overly positive/negative people. I aim for a balance as I, myself, suffer from enough mood swings for the both of us.～☆</p>
 
 <p align="center"><p align="center" style="font-size: 11;"> I do not interact with Republicans or anyone who supports red thinking in relation to politics. Anyone who is Pro-Life must stay away from me. Any male apologist's stay away from me, as I support misandristic thinking and have little to no sympathy for men.  ～☆</p>
 
