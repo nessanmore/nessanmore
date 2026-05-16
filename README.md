@@ -3,7 +3,7 @@
 <img src="https://i.pinimg.com/736x/1e/61/d2/1e61d2fb1fa3128bfa1315dc4d92e9b8.jpg" alt="Banner" width="45%">  </a>
 </p>
 
-<h1 align="center">hi, i'm pup</a>!</h1>
+<h1 align="center">hi, i'm ada</a>!</h1>
 <p align="center">
 </p>
 <h3 align="center">welcome to my profile, ponies :3</h3>
