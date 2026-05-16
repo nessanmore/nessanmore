@@ -5,7 +5,6 @@
 
 <h1 align="center">hi, i'm pup</a>!</h1>
 <p align="center">
-<a href="https://pupandmore.carrd.co/">Click here for my Carrd!</a>  </a>
 </p>
 <h3 align="center">welcome to my profile, ponies :3</h3>
 <p align="center"> <sub><small>18</small></sub> </p>
@@ -21,6 +20,9 @@
   </font>
 </p>
 <p align="center"><p align="center" style="font-size: 11;"> I am a confrontational person, and get angry very easily. Though I will try my best to be respectful and approachable, if there is self-proclaimed 'beef' beetween us, you must tell me it directly, or stay away from me, because I don't entertain conversations with people who don't like me. I block freely. I can not be around passive people; you must have some strong passion, something you stand for.～☆ </p>
+
+<p align="center"><p align="center" style="font-size: 11;"> If you approach me because of drama/beef and you are not the person I have the direct problem with, I'm blocking you. I don't deal with 'messengers' or middlemen, just don't speak to me at all if isn't to my face.～☆ </p>
+
 
 <h1 align="center"></a></h2>
 <blockquote><h2><b>DNI</b></h2></blockquote>
