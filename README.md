@@ -12,7 +12,7 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
-<p align="center"><p align="center" style="font-size: 11;"> I am autisitc and have bpd, so please interact cautiously. I am always open to cuddles/hugs and interactions, but please take note that I do not like crowded areas. I prefer one on one communication (whispering) and I don't respond well when there are too many friends of friends (oomfs) in one area. I do 'irish goodbyes' often when cases like that happen.～☆ </p>
+<p align="center"><p align="center" style="font-size: 11;"> I am autistic and have bpd, so please interact cautiously. I am always open to cuddles/hugs and interactions, but please take note that I do not like crowded areas. I prefer one on one communication (whispering) and I don't respond well when there are too many friends of friends (oomfs) in one area. I do 'irish goodbyes' often when cases like that happen.～☆ </p>
 
 <p align="center">
   <font size="2">
