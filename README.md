@@ -16,7 +16,7 @@
 
 <p align="center">
   <font size="2">
-    I am often on 'offline' mode, so please don't assume I've blocked you or are avoiding you. Most of the time I will be open to conversation with friends, but there may be times I do not approach first. I am less likely to approach if a friend of mines is sititng with another pony I am unfamilar with, and will refuse to engage. I am <u>very</u> protective and territorial over people I consider friends.～☆
+    I am often on 'offline' mode, so please don't assume I've blocked you or are avoiding you. Most of the time I will be open to conversation with friends, but there may be times I do not approach first. I am less likely to approach if a friend of mines is sitting with another pony I am unfamilar with, and will refuse to engage. I am <u>very</u> protective and territorial over people I consider friends.～☆
   </font>
 </p>
 <p align="center"><p align="center" style="font-size: 11;"> I am a confrontational person and get angry very easily. Though I will try my best to be respectful and approachable, if there is self-proclaimed 'beef' beetween us, you must tell me it directly, or stay away from me, because I don't entertain conversations with people who don't like me. I block freely. I can not be around passive people; you must have some strong passion, something you stand for.～☆ </p>
