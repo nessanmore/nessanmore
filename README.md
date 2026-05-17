@@ -8,6 +8,11 @@
 </p>
 <h3 align="center">welcome to my profile, ponies :3</h3>
 <p align="center"> <sub><small>18, genderfluid, bi with female preference</small></sub> </p>
+<p align="center">
+  <font size="2">
+    <a href="https://en.pronouns.page/@nessference">pronouns</a>
+  </font>
+</p>
 <p align="center">dni / byi for ponytown ～☆</p>
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
