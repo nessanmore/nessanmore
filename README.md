@@ -17,7 +17,7 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
- I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I do 'Irish goodbyes' often when cases like that happen. I an almost always doing something else with ponytown open, so late responses are common.～☆ </p>
+ I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I an almost always doing something else with ponytown open, so late responses are common.～☆ </p>
 
 <p align="center">
   <font size="2">
