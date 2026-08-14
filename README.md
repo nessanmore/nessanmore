@@ -17,7 +17,7 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
- I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I am almost always doing something else with Ponytown open, so late responses are common. I am always open to C+H, unless you are Philippe. </p>
+ I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I am almost always doing something else with Ponytown open, so late responses are common. I may be half asleep half the time too...I am always open to C+H, unless you are Philippe. </p>
 
 <p align="center">
   <font size="2">
