@@ -24,10 +24,6 @@
     I am often on 'offline' mode, so please don't assume I've blocked you or am avoiding you. Most of the time, I will be open to conversation with friends, but there may be times I do not approach first. I am less likely to approach if a friend of mine is sitting with another pony I am unfamiliar with, and will refuse to engage. I am <u>very</u> protective and territorial over people I consider friends.～☆
   </font>
 </p>
-<p align="center"><p align="center" style="font-size: 11;"> I am a confrontational person and get angry very easily. Though I will try my best to be respectful and approachable, if there is self-proclaimed 'beef' between us, you must tell me about it directly, or stay away from me, because I don't entertain conversations with people who don't like me. I block freely. I can not be around passive people; you must have some strong passion, something you stand for.～☆ </p>
-
-<p align="center"><p align="center" style="font-size: 11;"> If you approach me because of drama/beef and you are not the person I have the direct problem with, I'm blocking you. I don't deal with 'messengers' or middlemen; just don't speak to me at all if it isn't to my face.～☆ </p>
-
 
 <h1 align="center"></a></h2>
 <blockquote><h2><b>DNI</b></h2></blockquote>
