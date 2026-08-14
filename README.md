@@ -3,7 +3,7 @@
 <img src="https://i.postimg.cc/d3hh53R8/IMG-2913.jpg" alt="Banner" width="45%">  </a>
 </p>
 
-<h1 align="center">hi, i'm ada</a>!</h1>
+<h1 align="center">hi, i'm wolf</a>!</h1>
 <p align="center">
 </p>
 <h3 align="center">welcome to my profile </h3>
@@ -17,7 +17,7 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
-<p align="center"><p align="center" style="font-size: 11;"> I am autistic and have bpd, so please interact cautiously. I am always open to cuddles/hugs and interactions, but please take note that I do not like crowded areas. I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends of friends (oomfs) in one area. I do 'Irish goodbyes' often when cases like that happen.～☆ </p>
+ I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I do 'Irish goodbyes' often when cases like that happen. I an almost always doing something else with ponytown open, so late responses are common.～☆ </p>
 
 <p align="center">
   <font size="2">
