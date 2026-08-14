@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://yuna0x0.com">
-<img src="https://i.pinimg.com/736x/1e/61/d2/1e61d2fb1fa3128bfa1315dc4d92e9b8.jpg" alt="Banner" width="45%">  </a>
+<img src="https://pin.it/4pSbKU6JA" alt="Banner" width="45%">  </a>
 </p>
 
 <h1 align="center">hi, i'm ada</a>!</h1>
