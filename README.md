@@ -21,7 +21,7 @@
 
 <p align="center">
   <font size="2">
-    I am often on 'offline' mode, so please don't assume I've blocked you or am avoiding you. Most of the time, I will be open to conversation with friends, but there may be times I do not approach first. I am less likely to approach if a friend of mine is sitting with another pony I am unfamiliar with, and will refuse to engage. I am <u>very</u> protective and territorial over people I consider friends.～☆
+I am <u>very</u> protective and territorial over people I consider friends.～☆
   </font>
 </p>
 
