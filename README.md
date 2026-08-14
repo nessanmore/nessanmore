@@ -25,7 +25,7 @@ I'm low-energy and sometimes come across as bland, but please feel free to talk 
   </font>
 </p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I'm open-minded to most ships and don't mind roleplay or interacting as your preferred ship! I, however, mainly ship Ronference. </p>
+<p align="center"><p align="center" style="font-size: 11;"> I'm open-minded to most ships and don't mind roleplay or interacting as your preferred ship! I, however, mainly ship Ronference. Variations of Nortnaib and Naibeli are fine with me. </p>
 
 
 <h1 align="center"></a></h2>
