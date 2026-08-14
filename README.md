@@ -17,11 +17,11 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
- I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I an almost always doing something else with ponytown open, so late responses are common.～☆ </p>
+ I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I am almost always doing something else with Ponytown open, so late responses are common.～☆ </p>
 
 <p align="center">
   <font size="2">
-I am <u>very</u> protective and territorial over people I consider friends.～☆
+I'm very low energy and may be bland sometimes, but please don't feel hesitant to talk to me; I'm open to conversation! Tone tags are very helpful but not required if we know each other well. ～☆
   </font>
 </p>
 
