@@ -6,7 +6,7 @@
 <h1 align="center">hi, i'm ada</a>!</h1>
 <p align="center">
 </p>
-<h3 align="center">welcome to my profile, ponies :3</h3>
+<h3 align="center">welcome to my profile </h3>
 <p align="center"> <sub><small>18, genderfluid, bi with female preference</small></sub> </p>
 <p align="center">
   <font size="2">
