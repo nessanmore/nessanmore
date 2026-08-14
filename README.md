@@ -25,6 +25,9 @@ I'm low-energy and sometimes come across as bland, but please feel free to talk 
   </font>
 </p>
 
+<p align="center"><p align="center" style="font-size: 11;"> I'm open-minded to most ships and don't mind roleplay or interacting as your preferred ship! I, however, mainly ship Ronference. </p>
+
+
 <h1 align="center"></a></h2>
 <blockquote><h2><b>DNI</b></h2></blockquote>
 <p align="center"><p align="center" style="font-size: 11;"> I don't like people who act childlike or are very loud in a childish demeanor, even if it is a personality trait. It makes me very uncomfortable. Acting dumb or regressing yourself willingly as an act falls under this. I understand age regression as a psychological struggle, but I do not tolerate age play or people who do it on purpose for attention.～☆</p>
