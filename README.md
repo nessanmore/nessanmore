@@ -14,15 +14,15 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
- I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I am almost always doing something else with Ponytown open, so late responses are common. I am often up for roleplay with a heads-up and always open to C+H unless you're Jack/Phillipe. </p>
+ I prefer one-on-one communication (whispering) because I am almost always doing something else with Ponytown open, so late responses are common. Often up for roleplay (with a heads-up) and always open to C+H unless you're Jack/Phillipe. </p>
 
 <p align="center">
   <font size="2">
-I am autistic with a special interest in Ronald, so always expect me to be my Inference or Ronald pony. Feel free to talk to me; I'm open to conversation! Tone tags are very helpful but not required if we know each other well. ～☆
+I am autistic with a special interest in Ronald, so always expect me to be my Inference or Ronald pony. Feel free to talk to me; I swear I'm nice...Tone tags are very helpful but not required if we know each other well. ～☆
   </font>
 </p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I am a ronference monoshipper. I am open-minded to variations of the pairing (Cabinet + Gambler, Military, Moleference, Jarhead + Inf, etc), but I interact with few nn pairings outside of them. For general shipping, I am a fan of adamil and most lesbian pairings or rare pairs. </p>
+<p align="center"><p align="center" style="font-size: 11;"> I am a ronference monoshipper. I am open to variations of the pairing (Cabinet + Gambler, Military, Moleference, Jarhead + Inf, etc.), but I interact with few nn pairings outside those. For general shipping, I am a fan of adamil and most lesbian pairings or rare pairs. </p>
 
 <h1 align="center"></a></h2>
 <blockquote><h2><b>DNI</b></h2></blockquote>
