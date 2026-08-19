@@ -31,7 +31,7 @@ I'm low-energy and sometimes come across as bland, but please feel free to talk 
 <blockquote><h2><b>DNI</b></h2></blockquote>
 <p align="center"><p align="center" style="font-size: 11;"> I don't like people who act childlike or are very loud in a childish demeanor, even if it is a personality trait. It makes me very uncomfortable. Acting dumb or regressing yourself willingly as an act falls under this. I understand age regression as a psychological struggle, but I do not tolerate age play or people who do it on purpose for attention.～☆</p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I don't like Jack or Phillipe. NaibJack is a hard DNI. I don't like racist jokes or demeaning comments about women.～☆</p>
+<p align="center"><p align="center" style="font-size: 11;"> I don't like Jack or Phillipe. NaibJack is a hard DNI. JokerMarg is a hard DNI. I don't like any pairing where abuse is directed toward women.～☆</p>
 
 
 
