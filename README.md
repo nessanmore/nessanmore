@@ -18,7 +18,7 @@
 
 <p align="center">
   <font size="2">
-I'm low-energy and sometimes come across as bland, but please feel free to talk to me; I'm open to conversation! Tone tags are very helpful but not required if we know each other well. ～☆
+I am autistic with a special interest in Ronald, so always expect me to be my Inference or Ronald pony. Feel free to talk to me; I'm open to conversation! Tone tags are very helpful but not required if we know each other well. ～☆
   </font>
 </p>
 
