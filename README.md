@@ -6,7 +6,6 @@
 <h1 align="center">hi, i'm wolf</a>!</h1>
 <p align="center">
 </p>
-<h3 align="center">welcome to my profile </h3>
 <p align="center">
   <font size="2">
     <a href="https://en.pronouns.page/@nessference">pronouns</a>
