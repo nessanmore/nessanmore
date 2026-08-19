@@ -17,7 +17,7 @@
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
- I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I am almost always doing something else with Ponytown open, so late responses are common. I may be half asleep half the time too...I am always open to C+H, unless you are Philippe. </p>
+ I prefer one-on-one communication (whispering), and I don't respond well when there are too many friends in one area. I am almost always doing something else with Ponytown open, so late responses are common. I may be half asleep half the time too...I am always open to C+H, unless you are Philippe or Jack. </p>
 
 <p align="center">
   <font size="2">
@@ -25,7 +25,7 @@ I'm low-energy and sometimes come across as bland, but please feel free to talk 
   </font>
 </p>
 
-<p align="center"><p align="center" style="font-size: 11;"> I'm open-minded to most ships and don't mind roleplay or interacting as your preferred ship! I, however, mainly ship Ronference.</p>
+<p align="center"><p align="center" style="font-size: 11;"> I am a ronference monoshipper in terms of nortnaib. I am open-minded to variations of the pairing, but I generally don't interact with any romantic nn ship outside of them. Generally speaking, I am a fan of adamil and most lesbian pairings or rare pairs. </p>
 
 <h1 align="center"></a></h2>
 <blockquote><h2><b>DNI</b></h2></blockquote>
