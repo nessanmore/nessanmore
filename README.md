@@ -18,7 +18,7 @@
 
 <p align="center">
   <font size="2">
-I am autistic with a special interest in Ronald, so always expect me to be my Inference or Ronald pony. Feel free to talk to me; I swear I'm nice...Tone tags are very helpful but not required if we know each other well. ～☆
+I am autistic with a special interest in Ronald, so always expect me to be my Inference or Ronald pony. Feel free to talk to me (esp if you're Ronald). I swear I'm nice. + Tone tags are very helpful but not required if we know each other well. ～☆
   </font>
 </p>
 
