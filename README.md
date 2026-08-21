@@ -6,11 +6,7 @@
 <h1 align="center">hi, i'm wolf</a>!</h1>
 <p align="center">
 </p>
-<p align="center">
-  <font size="2">
-    <a href="https://en.pronouns.page/@nessference">pronouns</a>
-  </font>
-</p>
+
 
 <blockquote><h2><b>BYI</b></h2></blockquote>
 
